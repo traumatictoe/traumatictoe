@@ -2,7 +2,7 @@
 
 natriex (rei/fay is just for close friend!) but you can call me nat!
 
-☁️ 13-14 ![46c9bf90](https://github.com/user-attachments/assets/416da14a-8359-4b6c-bcbd-ddfafc06ebe5)
+13-14 ![46c9bf90](https://github.com/user-attachments/assets/416da14a-8359-4b6c-bcbd-ddfafc06ebe5)
 
 I usually stay at Safe Server, sit in the Friday Night Funkin' area.
 
