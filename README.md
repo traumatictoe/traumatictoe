@@ -2,7 +2,10 @@
 
 (I need to find the artist of the above picture)
 
+
 ![image05](https://github.com/user-attachments/assets/8001691e-71a7-4a62-83b1-feb7597bf055)
+
+![image14](https://github.com/user-attachments/assets/59f4297b-66eb-4380-9a3a-c45de4bbcbcc) 𝐀𝐛𝐨𝐮𝐭 𝐦𝐞 ![image14](https://github.com/user-attachments/assets/59f4297b-66eb-4380-9a3a-c45de4bbcbcc)
 
 natri but you can call me nat! 	(„• ֊ •„)
 
