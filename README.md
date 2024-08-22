@@ -11,7 +11,7 @@ natri but you can call me nat! 	(„• ֊ •„)
 
 (I have 2 other nickname is rei and fay. But is just for close friend!)
 
-♡ 13-14 ♡
+♡ 14 y/o
 
 ![84cdeaba](https://github.com/user-attachments/assets/ce98c10b-e388-4ce4-a9ef-588b1bee26eb) My English is not very good. Sometimes I will have to use Google translate
 
