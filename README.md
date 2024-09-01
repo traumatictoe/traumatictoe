@@ -20,4 +20,4 @@ I usually stay at Safe Server, sit in front of the bakery! But sometimes you wil
 
 ![image44](https://github.com/user-attachments/assets/fef6d240-7b0a-405e-a502-e8f8e976b702)
 
-![3d864810](https://github.com/user-attachments/assets/5efbc1b9-c741-46cc-87b2-e01d45a8f1a4) Go to my other github and I'll put it in bio so you can read it carefully my dni list on my strawpage!!
+![3d864810](https://github.com/user-attachments/assets/5efbc1b9-c741-46cc-87b2-e01d45a8f1a4) Go to my other github and I'll put it in bio so you can read it carefully my dni list on my strawpage!! :D
