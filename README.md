@@ -8,7 +8,7 @@ natri/hope or march! („• ֊ •„)
 
 ♡ 14 (minor)
 
-![84cdeaba](https://github.com/user-attachments/assets/ce98c10b-e388-4ce4-a9ef-588b1bee26eb) I am poor at communicating, not good at joking. In general, I'm tasteless. But if you are close enough, I can communicate more comfortably, It will be easier for me to talk if you share the same fandom as me... Sorry about that if you don't like it. Well you can joke w me. But if it doesn't involve se.x or racism, it's completely fine with me! ^_^
+![84cdeaba](https://github.com/user-attachments/assets/ce98c10b-e388-4ce4-a9ef-588b1bee26eb) I am poor at communicating, not good at joking. In general, I'm tasteless. But if you are close enough, I can communicate more comfortably, It will be easier for me to talk if you share the same fandom as me. Sorry about that if you don't like it... Well you can joke w me. But if it doesn't involve se.x or racism, it's completely fine with me! ^_^
 
 ![image05](https://github.com/user-attachments/assets/8001691e-71a7-4a62-83b1-feb7597bf055)
 
