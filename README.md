@@ -18,4 +18,4 @@ natri/hope or march! („• ֊ •„)
 
 ![image44](https://github.com/user-attachments/assets/fef6d240-7b0a-405e-a502-e8f8e976b702)
 
-![3d864810](https://github.com/user-attachments/assets/5efbc1b9-c741-46cc-87b2-e01d45a8f1a4) dni list on my strawpage (In the process of updating the dni list)
+![3d864810](https://github.com/user-attachments/assets/5efbc1b9-c741-46cc-87b2-e01d45a8f1a4) dni list on my strawpage (In the process of updating the dni list.)
